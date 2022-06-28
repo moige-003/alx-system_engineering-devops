@@ -1,1 +1,1 @@
-7. Global variable
+9. Divide and rule
