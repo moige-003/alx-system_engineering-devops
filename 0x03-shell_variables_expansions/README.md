@@ -1,1 +1,1 @@
-3. If the path be beautiful, let us not ask where it leads
+8. Every addition to true knowledge is an addition to human power
